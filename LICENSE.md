@@ -1,4 +1,4 @@
-
+GarageBand for macOS secure Filter: reverb & lens-flare is the best GarageBand for macOS filter, featuring reverb and lens-flare. Safe, efficient, and optimized for video editors
 
 
 
